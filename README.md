@@ -1,4 +1,3 @@
-![question22](/images/614.png)
 
 # Loja de Roupas Masculinas
 
