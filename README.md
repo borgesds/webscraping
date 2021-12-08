@@ -3,7 +3,7 @@
 
 **Aviso:** O seguinte contexto é completamente fictício, a empresa, o contexto, o CEO, as questões de negócios existem apenas para elaboração desse contexto.
 
-Dois empresários estão querendo expandir seus negócios para os Estados Unidos, e pediram uma ajuda para buscar informações em uma loja conceituada nos EUA. Esses empresários gostariam de começar um E-commerce voltado no começo para venda de calças masculinas..
+Dois empresários estão querendo expandir seus negócios para os Estados Unidos, e pediram uma ajuda para buscar informações em uma loja conceituada nos EUA. Esses empresários gostariam de começar um E-commerce voltado no começo para venda de calças masculinas.
 
 Com uma visão para o mercado dos EUA eles apresentaram um relatório Research & Markets que aponta que o mercado global de beleza masculinaalcançou o valor de US$ 57,7 bilhões em 2017, segundo relatório da [Research & Markets](https://forbes.com.br/?s=Research+%26+Markets). A previsão da consultoria é de que a soma chegue aos US$ 78,6 bilhões em 2023. O mercado brasileiro é o segundo maior do mundo, atrás apenas dos EUA. “Quando se fala em cosméticos, o Brasil está sempre nas primeiras colocações dos [rankings](https://forbes.com.br/?s=rankings)”, afirma o coordenador de varejo da FGV, Maurício Morgado. E querem está nesse primeiro lugar do consumismo masculino.
 
